@@ -10,3 +10,9 @@ linux commands
 			                      google cloud 
 
 
+
+					      thank you 
+					       
+					      final copy
+
+
